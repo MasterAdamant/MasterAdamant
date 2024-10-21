@@ -5,4 +5,4 @@
 - 📫 How to reach me:
   ivan.vladislavovich.2007@gmail.com
 - 😄 Pronouns: He/his
-- ⚡ Fun fact: I ended school with gold medal!
+- ⚡ Fun fact: I have gratuated from school with gold medal
